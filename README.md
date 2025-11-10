@@ -45,4 +45,6 @@ Centralize o engajamento de nossas campanhas aqui. Use e compartilhe os posts ab
 Para dúvidas ou comunicação oficial:
 
 * **Email:** [Email de Contato]
-* **Redes Sociais:** [Link para Instagram/X/Facebook]
+* **Redes Sociais:**
+  * [X](https://x.com/roxinhosjuntos)
+  *  Instagram
