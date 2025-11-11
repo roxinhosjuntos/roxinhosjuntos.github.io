@@ -31,9 +31,8 @@ Centralize o engajamento de nossas campanhas aqui. Use e compartilhe os posts ab
 
 | Campanha | Link para o Post Original (Instagram, X, etc.) |
 | :--- | :--- |
-| **[Sindicato dos Bancários]** | [Post do Sindicato](https://www.linkedin.com/posts/sindicato-dos-banc-rios-de-s-o-paulos-osasco-e-regi-o_nesta-quarta-feira-12-o-sp-banc%C3%A1rios-realizar%C3%A1-activity-7393682938300874752-FL5m) |
+| **Sindicato dos Bancários** | [Post do Sindicato](https://www.linkedin.com/posts/sindicato-dos-banc-rios-de-s-o-paulos-osasco-e-regi-o_nesta-quarta-feira-12-o-sp-banc%C3%A1rios-realizar%C3%A1-activity-7393682938300874752-FL5m) |
 | **Neiva Ribeiro** | [Post no LinkedIn](https://www.linkedin.com/posts/neiva-ribeiro-627a8650_trabalhadores-direitos-bancaerrios-activity-7392964422501126144-m1Og) |
-| **[Adicionar Próximo Post]** | [Link para o Post Oficial] |
 
 > **➡️ Dica de Engajamento:** Ao compartilhar, utilize nossas hashtags oficiais: **#NossaCausa**, **#JuntosPelaMudança**
 
